@@ -3,4 +3,4 @@
 - 💬 Ask me about: nothing
 - 📫 How to reach me: email
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: hi
+- ⚡ Fun fact: I love (watching) basketball
