@@ -4,4 +4,4 @@
 - 📫 How to reach me: email
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I love (watching) basketball
-- My cv: <a href="https://nguyen-tan-phat-aboutme.netlify.app/">Click here</a>
+- My cv: <a href="https://mycv26s.netlify.app">Click here</a>
